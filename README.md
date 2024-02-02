@@ -1,1 +1,1 @@
-thats oomf😭😭😭
+im roark pokemon canon
